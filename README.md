@@ -1,4 +1,4 @@
-# Privacy Policy
+# Privacy Policy / Support
 Overview
 
 This Privacy Policy describes how your personal information is handled in Nearly There for iOS.
